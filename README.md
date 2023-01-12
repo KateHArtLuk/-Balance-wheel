@@ -8,6 +8,6 @@ Learn to ride independently without external help on the wheel of the spheres of
 
 ❉ **The wheel of life balance is a technique for analyzing and planning life.** ❉
 
-Evaluate the current state of each sphere from 1 to 10 points (1 – horror, 10 – everything is fine). 
-1 – inside the circle, 10 – on the outer circle. As a result, you get the wheel of life balance of your life.
+Evaluate the current state of each sphere from :one: to :keycap_ten: points (1 – horror, 10 – everything is fine). 
+:one: – inside the circle, :keycap_ten: – on the outer circle. As a result, you get the wheel of life balance of your life.
 The sphere of life that scored a few points is the main source of dissatisfaction in life.
