@@ -6,7 +6,7 @@ Life balance is an interesting, active life by your rules, not a comfortable sur
 It is necessary to make a decision — to gradually regain control of their fate. 
 Learn to ride independently without external help on the wheel of the spheres of your life.
 
-❉ **The wheel of life balance is a technique for analyzing and planning life.**
+❉ **The wheel of life balance is a technique for analyzing and planning life.** ❉
 
 Evaluate the current state of each sphere from 1 to 10 points (1 – horror, 10 – everything is fine). 
 1 – inside the circle, 10 – on the outer circle. As a result, you get the wheel of life balance of your life.
